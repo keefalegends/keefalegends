@@ -1,9 +1,6 @@
 # 💫 About Me:
-## ✨ About Me
-
 I’m a student with a strong interest in technology and innovation.<br>
 I enjoy exploring new ideas, building projects, and learning through hands-on experience.<br><br>
-
 Passionate about problem-solving and creating meaningful solutions,<br>
 I am always ready to grow, adapt, and take on new challenges.
 
