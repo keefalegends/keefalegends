@@ -1,4 +1,4 @@
-<img width="1454" height="736" alt="未来、予測不能。 - イマ｜HAKUHODO I-STUDIO RECRUIT 2015" src="https://github.com/user-attachments/assets/903199fd-8177-489f-8a64-ba9adc40a0f4" />
+<img width="1206" height="357" alt="image" src="https://github.com/user-attachments/assets/81798e2a-77ca-4743-9394-621bd21b8ebf" />
 
 
 # 💫 About Me:
